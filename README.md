@@ -1,0 +1,7 @@
+GPG Fingerprint: 0D0B9511F2B562DC59A2BB3538A6B4C850773FAC
+
+The full key is here.
+
+Github suggested I put "name, location, and a profile picture" in here. Putting real information on the internet is rarely a good idea.
+
+Remeber what your parents used to say? "Trust nobody on the internet. It could be anyone on the other side of the screen!" Parents know better! (allegedly)
