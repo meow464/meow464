@@ -4,4 +4,4 @@ The full key is [here](https://raw.githubusercontent.com/meow464/meow464/main/me
 
 Github suggested I put "name, location, and a profile picture" in here. Putting real information on the internet is rarely a good idea.
 
-Remeber what your parents used to say? "Trust nobody on the internet. It could be anyone on the other side of the screen!" Parents know better! (allegedly)
+Remeber what your parents used to say? "On the internet no one knows you are a dog!"
